@@ -55,6 +55,10 @@
 - 使用本软件产生的一切后果由使用者自行承担
 - 请勿用于商业用途
 
+
+
+## 下载连接
+蓝奏云：https://kejizhixing.lanzout.com/b007uvpt8h 密码:4ho8
 ## 版权
 
 Copyright (c) 2026 星视界 (Journeyer). All rights reserved.
